@@ -1,2 +1,2 @@
 # Terms
-Suomisaundi Ry
+Suomisaundi Ry Terms
